@@ -73,7 +73,7 @@
       
       <hr>
       <h1>Netuno Em Aquário ♒</h1>
-      <p>Assim como Plutão e Urano, Netuno também causa efeitos direitamente nas gerações nos signos no qual transita por 14 anos, Os ditos nascidos na <u>Geração Z de 1990 a 2012</u> pegando boa parte do trânsito de <u>Netuno em Aquário que foi de 1998 a 2012.</u> <br><br>Netuno na astrologia rege os sonhos, as ilusões, o íntimo espiritual, saúde mental, o abstrato e as artes, as drogas escapistas e os vícios, Já Aquário Rege a tecnologia a coletividade em escala global, todas as redes sociais e outros aplicativos de comunicação e o futuro.<br><br>
+      <p>Assim como Plutão e Urano, Netuno também causa efeitos diretamente nas gerações nos signos no qual transita por 14 anos, Os ditos nascidos na <u>Geração Z de 1990 a 2012</u> pegando boa parte do trânsito de <u>Netuno em Aquário que foi de 1998 a 2012.</u> <br><br>Netuno na astrologia rege os sonhos, as ilusões, o íntimo espiritual, saúde mental, o abstrato e as artes, as drogas escapistas e os vícios, Já Aquário Rege a tecnologia a coletividade em escala global, todas as redes sociais e outros aplicativos de comunicação e o futuro.<br><br>
        
         <img src="s.jpeg">
         <hr>
